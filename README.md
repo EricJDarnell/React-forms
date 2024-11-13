@@ -1,1 +1,1 @@
-https://super-lamington-e2920d.netlify.app
+https://tranquil-hamster-56f2dd.netlify.app
